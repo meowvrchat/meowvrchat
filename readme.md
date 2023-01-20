@@ -1,4 +1,4 @@
-`                 ／　￣　 ）&nbsp;    
+                 ／　￣　 ）&nbsp;    
 　　　　　　　　 ,'　　r'´￣  &nbsp;  
 　　　　　　　　 l　　 !  &nbsp;  
 　　　　　　　　 ゝ　　ゝ、  &nbsp;  
@@ -14,6 +14,6 @@ l　 >　　　　　　　　 ',　　　　　j  &nbsp;
 Y　　　　　　　　　　 '.,　 -∠､ノ  &nbsp;  
 l　 l　　　　l　　　 ,..┤　　　l  &nbsp;  
 ',　　　-　　　　　 !、j'￣　 ﾉ  &nbsp;  
-　ゝ、_ｰ一'__ _,ィ´ゝ---' `  &nbsp;  
+　ゝ、_ｰ一'__ _,ィ´ゝ---'   &nbsp;  
   &nbsp;  
 &nbsp;  
