@@ -1,5 +1,5 @@
-                              ／　￣　 ）
-　　　　　　　             　 ,'　　r'´￣
+                              ／　￣　 ） &nbsp; 
+　　　　　　　             　 ,'　　r'´￣ &nbsp; 
 　　　　　　　　 l　　 !  &nbsp;  
 　　　　　　　　 ゝ　　ゝ、  &nbsp;  
 　　　　　　　　　 ｀ヘ、 ｀ヽ、  &nbsp;  
