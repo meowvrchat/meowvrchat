@@ -15,4 +15,3 @@ Y　　　　　　　　　　 '.,　 -∠､ノ  &nbsp;
 l　 l　　　　l　　　 ,..┤　　　l  &nbsp;  
 ',　　　-　　　　　 !、j'￣　 ﾉ  &nbsp;  
 　ゝ、_ｰ一'__ _,ィ´ゝ---'  
-https://meowvrc.tumblr.com
